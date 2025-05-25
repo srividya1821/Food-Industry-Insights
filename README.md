@@ -1,2 +1,3 @@
 # Food-Industry-Insights
 Comprehensive Analysis of the Food Industry
+https://www.linkedin.com/posts/k-srividya_santhosh-activity-7330310144473403394-Jkb3?utm_source=share&utm_medium=member_desktop&rcm=ACoAAFrMZn0BvVhX3fEPEdW-6hk_ljVeqDZBxJw
